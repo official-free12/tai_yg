@@ -1,0 +1,6 @@
+# 【太阳线】直销分润模式静态分红|动态奖金|分享奖|团队奖|积分模式|报单中心
+
+分润模式|太阳线模式|静态分红|动态奖金|分享奖|团队奖|积分模式|报单中心<br>模式为太阳线模式<br>一、静态分红：<br>每天分润 1%【后台可修改】，分润99次结束【日结】<br>二、动态奖金（秒结）<br>1、直推奖：一代5% 二代 3% 三代2%<br>2、分享奖：<br>直推1个下拿1-3代静态分红10%<br>直推2个下拿1-3代静态分红10%，4-6代5%<br>直推3个以上下拿1-3代静态分红10%，4-6代5%、7-9代3%<br>三、团队奖（日结）：<br>example.com 第2大区大于30万 升为A级股东，享受公司业绩3%加权<br>example.com.3大区累计200万 第3大区大于50万 升为B级股东，享受公司业绩4%加权<br>example.com.example.com 第3大区大于50万 升为C级股东，享受公司业绩5%加权 <br>四、积分模式<br>A、复销：20%只能商城购物<br>B、2%助学基金，<br>C、增值积分：10%，够2024可手动点击按钮【翻倍】，15天后翻2倍计入电子币，可报单可购物<br>D、剩余的可提现，提现费3%<br>五、报单中心 3%报单费<br>（ 团队业绩需达到20万方可开通报单中心，前两个月放宽总业绩达到10万即可 ）<br>六、购物商城分类（电子币、购物积分均可购买）：<br>高端商品、保健产品、生活用品、积分购物、旅游<br>七：电子币：（可报单、可购物、客户互转）<br>购物币：（不可报单、可购物）<br>增值积分：翻倍前不可报单、不可购物翻倍后计入电子币，计入电子币后，可报单、可购物<br>八、周六周日不提现<br>
+
+
+<p style="color: red;">源代码下载地址：<a href="https://mega-file.org/ndqjq" style="color: red;">https://mega-file.org/ndqjq</a></p><p style="color: red;"><img src="https://cdn-icons-png.flaticon.com/512/2111/2111646.png" alt="Telegram Icon" style="width: 16px; vertical-align: middle; margin-right: 5px;">Telegram:<a href="https://t.me/official_sourcecode" style="color: red;">@official_sourcecode</a></p>
